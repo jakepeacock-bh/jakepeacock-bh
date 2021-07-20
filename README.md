@@ -1,1 +1,1 @@
-embrace ambiguity and uncertainty
+embrace ambiguity and uncertainty.
